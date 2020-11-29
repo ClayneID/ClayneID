@@ -2,7 +2,6 @@
 
 Hello, My real name is **Bayu**
 <br/>🏠 I live in **Jawa Timur, Indonesia**
-<br/>👤 Discord: **Clayne#0001**
 <br/>
 
 <hr>
