@@ -13,7 +13,7 @@ Hello, My real name is **Bayu**
 - 📫 How to reach me: You can reach me on Discord :)
 - 😄 Pronouns: Clayne
 - ⚡ Fun fact: Im Cute :3
-### 📥 Discord: Clayne#0001
+### 📥 Discord: .Neeee#1000
 <hr>
 
 <a href="https://github.com/ClayneID">
